@@ -1,7 +1,7 @@
 
 
 <p align="center" dir="auto">
- <a href="https://rentry.co/rickypawss">ʳᵉⁿᵗʳʸ</a>  <a href="https://attajohn.atabook.org/">ᵃᵗᵃ</a>  <br><a href="https://jorkk.straw.page/">ˢᵗʳᵃʷ</a><br>
+ <a href="https://rentry.co/rickypawss">ʳᵉⁿᵗʳʸ</a>  <a href="https://attajohn.atabook.org/">ᵃᵗᵃ</a>  
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=000000&width=435&lines=I'm+going+to+pack+up+all+the+pain)](https://git.io/typing-svg)
 <p align="center">
