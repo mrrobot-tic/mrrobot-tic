@@ -3,9 +3,9 @@
 <p align="center" dir="auto">
  <a href="https://rentry.co/rickypawss">ʳᵉⁿᵗʳʸ</a>  <a href="https://attajohn.atabook.org/">ᵃᵗᵃ</a>  <br><a href="https://dutchringo.straw.page/">ˢᵗʳᵃʷ</a><br>
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=000000&width=435&lines=I'm+going+to+pack+up+all+the+pain)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=9F9F9F&width=435&lines=you+make+me+want+to+scream)](https://git.io/typing-svg)
 <p align="center">
-  <img src="https://i.pinimg.com/736x/10/17/93/101793712cab7ce078f301018e88a7a5.jpg" width="450">
+  <img src="https://i.postimg.cc/FRJgCfwt/Screenshot-2025-11-19-6-53-14-PM-removebg-preview.png" width="450">
 </p>   <p align="center">
 
 <p align="center">
