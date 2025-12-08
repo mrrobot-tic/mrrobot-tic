@@ -8,3 +8,4 @@
 <p align="center" dir="auto">
  <a href="https://rentry.co/rickypawss">rentry</a>  <a href="https://strangerthings.atabook.org/">ata</a>  <br><a href="https://jbyers.straw.page/">straw</a><br>
 
+ lol i won't be on this whole month or next year maybe, im so fucking drain, i proby be on just to play with friends or something 🐶
