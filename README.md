@@ -22,8 +22,19 @@ biggest jonathan  / stonathan fan
  <a href="https://rentry.co/rickypawss">rentry</a>  <a href="https://strangerthings.atabook.org/">ata</a>  <br><a href="https://jbyers.straw.page/">straw</a><br>
 
  
-   
-</p>
+
+  <!-- DNI -->
+   <br>
+<p align="left">
+<ins><b><em>dni</em></b></ins> claim to be Jonathan / stonathan #1 fan,, sensitive  people ,, old  friends  
+
+  <!-- byf -->
+   <br>
+<p align="left">
+<ins><b><em>byf</em></b></ins> Bipolar  13y I lack empathy  I've got bad mood swings  #1 charlie heaton fan ,,   
+     
+ 
+  </p>
 
 
 </details>
