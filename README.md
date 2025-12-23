@@ -40,7 +40,7 @@ stonathan soldier
 <p align="center">
 <ins><b><em>INT</em></b></ins>  stranger things, Mr robot, TWD, the beatles, teen wolf, The Pacific Sam and colby metalocalypse twin peaks scream, pnd, Spree , IT 2017 / wtd, metallica star trek
  
-  <a href="https://imgbb.com/"><img src="https://i.ibb.co/G3PWXqvy/IMG-4707-1.png" alt="IMG 4707 (1)" border="0"></a>
+ <a href="https://imgbb.com/"><img src="https://i.ibb.co/ynkcsSNX/stonathan-removebg-preview.png" alt="stonathan removebg preview" border="0"></a>
      
  
   </p>
