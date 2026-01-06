@@ -28,7 +28,7 @@
   <!-- byf -->
    <br>
 <p align="left">
-<ins><b><em>byf</em></b></ins>  I'm 13 so don't be weird about it, Bipolar, I've got bad mood swings so it sometimes affect how i interact with people, I'm a slow typer so be patient with me 😮‍💨, I do tough love and I'm very Awkward, #1 charlie heaton fan   
+<ins><b><em>byf</em></b></ins>  I'm 13 so don't be weird about it, Bipolar n myb npd, I've got bad mood swings so it sometimes affect how i interact with people, I'm a slow typer so be patient with me 😮‍💨, I do tough love and I'm very Awkward, #1 charlie heaton fan   
 
      
  <!-- INT -->
